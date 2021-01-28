@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 -->
 
 - 🔭 I’m currently working at [Telstra Purple](https://twitter.com/TelstraPurple)
-- 🌱 I’m currently reading [Three Kingdoms](https://www.amazon.com.au/Three-Kingdoms-Historical-Guanzhong-Luo-ebook/dp/B00HXIUDRM)
+- 🕹 I’m currently playing [Bubble Bobble](https://staffordwilliams.com/bubble-bobble)
 - 📫 How to reach me: [staffordwilliams.com](https://staffordwilliams.com/about)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i like shoes
